@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Blizzard-png
+- 🤺 I’m interested in fencing and coding!
+- 🪚 I’m currently learning woodworking
+- 🖥️ i'm currently developing little games for myself and others to enjoy!
+- 😄 Pronouns: he/him    
+- ⚡ Fun fact: i started learning to program when i was 12!
